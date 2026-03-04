@@ -1,3 +1,3 @@
 # Desert-Deserters-Prototype
-https://discord.com/channels/1471602140890792200/1471602142790815849/1478595676165378278 
+https://drive.google.com/drive/u/1/folders/1Lz8iuRjwcWZXKM7A0FBIggn8rKH_mf6O 
 - File for the Game Build Above
